@@ -1,1 +1,1 @@
-# yigitguris.github.io
+# only created for educational purposes.
